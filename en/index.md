@@ -1,5 +1,7 @@
 <h1>Welcome to our home 🏡🌼</h1>
 
+🇳🇴 [Norwegian](https://percarlsen.github.io/gruners/no/) | 🇺🇸 [English](https://percarlsen.github.io/gruners/en/)
+
 Here is some important practical information about check-in, your stay, and check-out. Don't hesitate to contact us if you have any questions.
 
 We hope you enjoy the apartment and have a great stay 😊

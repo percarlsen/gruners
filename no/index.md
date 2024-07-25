@@ -1,5 +1,7 @@
 <h1>Velkommen til hjemmet vårt 🏡🌼</h1>
 
+🇳🇴 [Norwegian](https://percarlsen.github.io/gruners/no/) | 🇺🇸 [English](https://percarlsen.github.io/gruners/en/)
+
 Her kommer litt praktisk informasjon om innsjekk, oppholdet og utsjekk som det er viktig at dere leser gjennom. Ikke nøl med å kontakte oss hvis dere skulle ha noen spørsmål.
 
 Vi håper dere trives i leiligheten og får et fint opphold 😊
