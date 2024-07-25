@@ -19,7 +19,7 @@ We hope you enjoy the apartment and have a great stay 😊
 
 ᯤ You will find the wifi password on the sideboard in the living room.
 
-🧑🏼‍🍳 Feel free to use the kitchen and help yourself to the dry goods, coffee, and tea that you find in the cupboards. Please leave any food that may be in the refrigerator when you arrive; we have cleared space on a couple of shelves for you. You may use the dishwasher, but knives and wooden kitchen utensils must be washed by hand. The fuse may trip if you use the oven at the same time as both panel heaters in the living room are in use. If this happens, turn off one of the heaters and reset the fuse in the fuse box in the hallway (flip the switch up).
+🧑🏼‍🍳 Feel free to use the kitchen and help yourself to the dry goods, coffee, and tea that you find in the cupboards. Please do not take the food that's left in the fridge; we have cleared space on a couple of shelves for you. You may use the dishwasher, but knives and wooden kitchen utensils must be washed by hand. The fuse may trip if you use the oven at the same time as both panel heaters in the living room are in use. If this happens, turn off one of the heaters and reset the fuse in the fuse box in the hallway (flip the switch up).
 
 🗑️ Trash is sorted by packaging plastic (purple bags), food waste (green bags), general waste (black/regular bag), and cardboard, and is thrown in the bins in the backyard. Glass and metal are disposed of at the recycling point in Grüners gate, about 150m to the left outside the front door.
 
