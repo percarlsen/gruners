@@ -5,7 +5,7 @@ Her kommer litt praktisk informasjon om innsjekk, oppholdet og utsjekk som det e
 Vi håper dere trives i leiligheten og får et fint opphold 😊
 
 ## Innsjekk
-🔑 Nøkler hentes på 7-eleven Olaf Ryes plass ([kart](https://maps.app.goo.gl/qTAuWBMjggQdmRVP9)) ved å oppgi hentekode som dere får tilsendt på airbnb.
+🔑 Nøkler hentes på 7-eleven Olaf Ryes plass ([kart](https://maps.app.goo.gl/qTAuWBMjggQdmRVP9)) ved å oppgi hentekode som dere får tilsendt på Airbnb.
 
 🏡 Leiligheten ligger i Grüners Gate 12B ([kart](https://maps.app.goo.gl/3Ak5Gi62WnCwmsQ17)). Gå helt inn i bakgården og inn døren til høyre. Leiligheten er i 3. etasje på høyre side, det står "Ida og Per" på døra.
 
@@ -13,7 +13,7 @@ Vi håper dere trives i leiligheten og får et fint opphold 😊
 <img src="../assets/backyard.jpeg" alt="Inngang" width="400"/>
 
 ## Praktisk info
-ℹ️ Det bor flere barnefamilier i blokka og det er lytt mellom leilighetene. Det er derfor veldig viktig at stilletidene respekteres. <b>Det skal være stille fra 23:00 til 07:00.</b>
+ℹ️ Det bor flere barnefamilier i blokka og det er lytt mellom leilighetene. Det er derfor veldig viktig at stilletidene respekteres. <b>Det skal være stille fra 23:00 til 07:00.</b> Vaskemaskin og oppvaskmaskin må ikke brukes etter kl 21:00.
 
 ᯤ Wifi-passord finner dere på skjenken i stua.
 
