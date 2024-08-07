@@ -25,5 +25,7 @@ We hope you enjoy the apartment and have a great stay 😊
 
 🧯 The fire extinguisher is in the kitchen between the kitchen counter and the window.
 
+👟 Please don't wear outdoors shoes indoors.
+
 ## Check-out
 📌 Check-out is at 12:00. We ask you to kindly leave the apartment as you found it. Clean the kitchen counter and take the trash out. Turn off lights, close windows and the balcony door, lock the apartment door, and place the keys in the mailbox (Ida Giske and Per Carlsen, bottom right) on the first floor (you may have to remove the keys from the key ring for them to fit in the mailbox).
